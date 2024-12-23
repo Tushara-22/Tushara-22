@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Tushara-22
+- 👀 I’m interested in SDE (Intern/full time)
+- 🌱 I’m currently learning 4th year engineering
+- 📫 How to reach me - www.linkedin.com/in/tushara-a-reddy-375429321
